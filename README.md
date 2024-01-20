@@ -2,4 +2,4 @@
 
 
 
-[VISIT](https://wayexit995.github.io/Look_Back/Index.html)
+[VISIT](https://wayexit995.github.io/Look_Back/)
