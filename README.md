@@ -1,8 +1,8 @@
 # [Click me to visit](https://wayexit995.github.io/Look_Back/)
 
-# [Chainsaw Man](https://wayexit995.github.io/Look_Back/)
+# [Look Back](https://wayexit995.github.io/Look_Back/)
 
-> Read the Look Back manga 
+> Read the Look Back Manga 
 
 > [Visit](https://wayexit995.github.io/Look_Back/)
 
